@@ -10,10 +10,11 @@
   </p>
   
   <p>
-    if you are the artist of any artwork included here and do not want it to be featured, please message me on discord and I will remove it!! (my discord is <b>dexzory</b>)
+    if you are the artist of any artwork included here and do not want it to be featured, please message me on discord and I will remove it!! (my discord is <b>dextwt</b>)
   </p>
 
   <p>
     random note: chat ggwp
   </p>
+
 
